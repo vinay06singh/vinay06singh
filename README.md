@@ -6,7 +6,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vinay06singh&label=Profile%20views&color=0e75b6&style=flat" alt="vinay06singh" /> </p>
 
-- 🌱 I’m currently learning **Django**
+- 🌱 I’m a **Python/Django Developer**
 
 - 📫 How to reach me **vinaysingh02640@gmail.com**
 
