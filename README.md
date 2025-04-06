@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **vinaysingh02640@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1AMVZ416UFD8YGk0AdAJeHlvCo0I17Sfl/view?usp=sharing](https://drive.google.com/file/d/1AMVZ416UFD8YGk0AdAJeHlvCo0I17Sfl/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1AMVZ416UFD8YGk0AdAJeHlvCo0I17Sfl/view?usp=sharing](https://drive.google.com/file/d/1urEqLG8WJw1SXyufoGW7zowa-CzItVkJ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
